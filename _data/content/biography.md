@@ -24,6 +24,8 @@ Inhalt
 
 ***
 
+Biografien von Lucas Cranach und seinen Nachkommen
+
 Lucas Cranach der Ältere
 
 Kurzüberblick
